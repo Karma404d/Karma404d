@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Karma404d someimes I also get called Tim , Goo TimGoo , Hassen. Wherever or however you know me there all the same person.
+- 👋 Hi, I’m @Karma404d sometimes I also get called Tim , Goo, TimGoo , Hassen. Wherever or however you know me there all the same person.
 - 👀 I’m interested in Web3 , Crypto , Solidity , Fullstack , Machine learning , Arduino,.
 - 🌱 I’m currently learning anything to help me progress as a developer.
 - 💞️ I’m looking to collaborate on anything anyone sees fit to invite me to collab on.
